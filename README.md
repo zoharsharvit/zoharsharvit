@@ -7,6 +7,7 @@
 **AI Lead & Applied Data Scientist, Myers-JDC-Brookdale Institute (MJB)**
 
 Children, Youth & Young Adults team ·
+
 Training as an AI Engineer & Architect, Bar-Ilan University
 
 📍 Israel
